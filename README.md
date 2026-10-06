@@ -1,4 +1,4 @@
 
-# \[Enter your portfolio title here\]
+# \[The Music and Curation Course]
 <!-- Version 1.0 -->
 \[Enter your responses to Week 1, tasks 2 and 3 here\]
