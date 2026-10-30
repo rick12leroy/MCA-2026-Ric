@@ -1,0 +1,9 @@
+Week 1 
+Basics of Music Data
+
+Task 1 
+My Theme is 'Here Comes The Sun' by The Beatles
+
+Task 2
+
+Task 3
